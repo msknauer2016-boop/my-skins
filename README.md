@@ -12,3 +12,5 @@ here you can find a link to all my most used skins
 [![](https://osu.ppy.sh/ss/19871464/073c)
 # [hatsunine miku clean skin](https://drive.google.com/file/d/1HNahDMRi9a1USYNgjFUI6PP1lRGIvM01/view?usp=sharing)
 [![](https://osu.ppy.sh/ss/19871467/cf0a)
+# [5wc 23](https://drive.google.com/file/d/16Fr34bWj2Oh5RePNAtaGWVJVjTIgKjps/view?usp=sharing)
+[![](https://osu.ppy.sh/ss/19871511/ce7c)
