@@ -9,3 +9,5 @@ here you can find a link to all my most used skins
 [![https://drive.google.com/file/d/1TbQ8P42T8GdGQ8aog8mpWbw5GIQJvA4v/view?usp=sharing](https://osu.ppy.sh/ss/19871457/8a6f)
 # [whitecat 3.0 aqua](https://drive.google.com/file/d/18sCJYxXVCboJTzohsO3cHFErNJYHg0yq/view?usp=sharing)
 [![](https://osu.ppy.sh/ss/19871461/f8de)]()
+# [whitecat koi edit](https://drive.google.com/file/d/189ssH_qU9Kor7_5AS908JaiIxoXntE3j/view?usp=sharing)
+[![](https://osu.ppy.sh/ss/19871464/073c)
