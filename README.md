@@ -32,3 +32,23 @@ here you can find a link to all my most used skins
 [![](https://osu.ppy.sh/ss/19872097/ba70)
 # [clearium](https://drive.google.com/file/d/1gwdGdhGjN4hwpqcssR-EhjFxmJQYiZxz/view?usp=sharing)
 [![](https://osu.ppy.sh/ss/19872100/a9ef)
+# [mrekk abyssal](https://drive.google.com/file/d/1r2QOQ7i4n9tw29BZ1hN-I2gJVM6df3Ff/view?usp=sharing)
+[![](https://osu.ppy.sh/ss/19900195/3c39)]
+
+
+
+
+
+
+
+
+
+
+
+
+
+# DT skins
+
+
+# [shiroko DT edit ](https://drive.google.com/file/d/1g5Zvnp-HpzgZSST_iXlig58Ze8COZVin/view?usp=sharing)
+[![](https://osu.ppy.sh/ss/19900185/b1c3)]
